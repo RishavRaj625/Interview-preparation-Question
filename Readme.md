@@ -31,3 +31,15 @@ Talking about my weakness — I sometimes try to make everything perfect, which 
 But I’ve been improving this by setting deadlines and focusing more on progress than perfection.
 
 Overall, I believe my strengths help me grow continuously, and I’m turning my weaknesses into learning opportunities every day.
+
+3. How do you handle pressure? 
+
+I believe pressure is a part of every professional journey, and how we handle it defines our growth.
+Personally, I handle pressure by staying calm, breaking tasks into smaller parts, and prioritizing what needs to be done first.
+
+For example, during the NIT Raipur Hackathon, our team had very limited time to finalize the project.
+Instead of panicking, I divided the work logically, stayed focused, and supported my teammates — and that helped us complete everything on time and even win the competition.
+
+I’ve realized that staying organized, maintaining a positive mindset, and taking short breaks when needed really help manage stress effectively.
+
+So, I see pressure not as a problem but as a chance to test and improve my abilities
